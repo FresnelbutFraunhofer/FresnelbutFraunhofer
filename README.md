@@ -2,7 +2,7 @@
 - 👀 I’m interested in optical
 - 🌱 I’m currently learning physics
 - 💞️ I’m looking to collaborate on (-)
-- 📫 How to reach me (say love to my mother)
+- 📫 How to reach me (-)
 - GOOD THINKING NICE KILLING
 
 <!---
